@@ -3,7 +3,7 @@ title: "Iconic Bags You May Not Have Known Were Inspired by Iconic Women ..."
 description: "Hermés Birkin Bag – Jane Birkin; Gucci Jackie Bag – Jackie (Kennedy) Onassis; Ballin Amal Bag – Amal Clooney; Gucci Bardot Bag – Bridget Bardot; Lady Dior Bag –Diana Princess of Wales; More ..."
 url: "https://bags.allwomenstalk.com/iconic-bags-inspired-by-iconic-women/"
 category: "bags"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Iconic Bags You May Not Have Known  Were Inspired by Iconic Women ...
@@ -68,16 +68,16 @@ I don’t know about you but with bags being named after the likes of Cara Delav
 
 ## Related Posts
 
-- [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
-- [how to wear messenger bag](https://bags.allwomenstalk.com/streetstyle-tips-for-carrying-a-messenger-bag/)
-- [modcloth bags](https://bags.allwomenstalk.com/fab-bags-for-college-girls/)
-- [amazing backpacks](https://bags.allwomenstalk.com/amazing-backpacks-youll-want-to-rush-out-to-buy/)
 - [cheap purses that look expensive](https://bags.allwomenstalk.com/affordable-bags-that-look-like-luxury-bags/)
 - [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
-- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
-- [perfect bag for travel](https://bags.allwomenstalk.com/heres-how-to-choose-the-perfect-travel-bag/)
-- [whats a pocketbook](https://bags.allwomenstalk.com/pocketbook-essentials-to-keep-in-your-bag-all-throughout-fall/)
 - [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
+- [whats a pocketbook](https://bags.allwomenstalk.com/pocketbook-essentials-to-keep-in-your-bag-all-throughout-fall/)
+- [amazing backpacks](https://bags.allwomenstalk.com/amazing-backpacks-youll-want-to-rush-out-to-buy/)
+- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
+- [how to wear messenger bag](https://bags.allwomenstalk.com/streetstyle-tips-for-carrying-a-messenger-bag/)
+- [perfect bag for travel](https://bags.allwomenstalk.com/heres-how-to-choose-the-perfect-travel-bag/)
+- [modcloth bags](https://bags.allwomenstalk.com/fab-bags-for-college-girls/)
+- [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
 - [7 Ladylike Bags ...](https://bags.allwomenstalk.com/7-ladylike-bags/)
 - [9 Designer Clutch Bags to Fall in Love with ...](https://bags.allwomenstalk.com/designer-clutch-bags-to-fall-in-love-with/)
 
