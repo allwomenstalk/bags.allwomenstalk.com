@@ -48,16 +48,16 @@ Hopefully these tips for reducing neck and shoulder pain will help us all to con
 
 ## Related Posts
 
-- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
-- [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
-- [herbs that help acne](https://skincare.allwomenstalk.com/wonderful-herbs-to-eat-that-combat-acne/)
-- [grandmas home remedies](https://lifestyle.allwomenstalk.com/natural-old-fashioned-remedies-that-your-grandma-swears-by/)
-- [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
 - [tea tree oil uses for nails](https://skincare.allwomenstalk.com/amazing-uses-for-tea-tree-oil-youve-got-to-try/)
 - [pain relieving pressure points](https://health.allwomenstalk.com/pain-relieving-pressure-points-in-your-body/)
-- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
-- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
 - [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
+- [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
+- [grandmas home remedies](https://lifestyle.allwomenstalk.com/natural-old-fashioned-remedies-that-your-grandma-swears-by/)
+- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
+- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
+- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
+- [herbs that help acne](https://skincare.allwomenstalk.com/wonderful-herbs-to-eat-that-combat-acne/)
+- [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
 - [7 Foods That Help Ease Pain Naturally ...](https://food.allwomenstalk.com/foods-that-help-ease-pain-naturally/)
 - [7 Tips on Relieving Aching Joints ...](https://health.allwomenstalk.com/7-tips-on-relieving-aching-joints/)
 

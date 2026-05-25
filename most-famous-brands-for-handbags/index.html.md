@@ -57,16 +57,16 @@ Top Image Source: newyorkgirlstyle.tumblr.com_
 
 ## Related Posts
 
-- [prettiest designer handbags](https://bags.allwomenstalk.com/iconic-contemporary-designer-handbags/)
-- [oxblood shoulder bag](https://bags.allwomenstalk.com/fabulous-oxblood-bags-for-this-season/)
-- [tips for buying leather bags](https://bags.allwomenstalk.com/things-to-check-when-buying-a-leather-bag/)
-- [jadior bag black](https://bags.allwomenstalk.com/tips-for-choosing-a-handbag/)
-- [all types bags](https://bags.allwomenstalk.com/types-of-bags-every-fashionista-must-own/)
 - [little black bag medical](https://bags.allwomenstalk.com/perfect-black-doctor-bags-for-a-stylish-look/)
-- [best wallets under 100](https://fashion.allwomenstalk.com/beautiful-wallets-under-50/)
 - [best chanel crossbody bag](https://bags.allwomenstalk.com/classic-chanel-bags/)
-- [accesories bags](https://bags.allwomenstalk.com/ways-to-accessorize-your-bag/)
+- [oxblood shoulder bag](https://bags.allwomenstalk.com/fabulous-oxblood-bags-for-this-season/)
+- [all types bags](https://bags.allwomenstalk.com/types-of-bags-every-fashionista-must-own/)
+- [jadior bag black](https://bags.allwomenstalk.com/tips-for-choosing-a-handbag/)
+- [best wallets under 100](https://fashion.allwomenstalk.com/beautiful-wallets-under-50/)
 - [retired louis vuitton bags](https://bags.allwomenstalk.com/tips-for-buying-a-pre-loved-or-discontinued-louis-vuitton-bag/)
+- [accesories bags](https://bags.allwomenstalk.com/ways-to-accessorize-your-bag/)
+- [tips for buying leather bags](https://bags.allwomenstalk.com/things-to-check-when-buying-a-leather-bag/)
+- [prettiest designer handbags](https://bags.allwomenstalk.com/iconic-contemporary-designer-handbags/)
 - [7 Fabulous Make-up Bags ...](https://bags.allwomenstalk.com/7-fabulous-make-up-bags/)
 - [7 Adorable Hello Kitty Handbags ...](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
 

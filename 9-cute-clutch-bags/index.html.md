@@ -77,16 +77,16 @@ I've never actually taken a clutch bag anywhere, I always just carry my bottomle
 
 ## Related Posts
 
-- [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
 - [tods g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
-- [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
 - [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
-- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
-- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
-- [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
+- [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
-- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
+- [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
+- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
+- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
 - [7 Pretty Clutches ...](https://bags.allwomenstalk.com/7-pretty-clutches/)
 - [8 Cute Crossbody Bags ...](https://bags.allwomenstalk.com/8-cute-crossbody-bags/)
 

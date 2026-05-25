@@ -72,15 +72,15 @@ Do you love any of these purses? Are you going to add any to your repertoire? Le
 ## Related Posts
 
 - [handbag organisation ideas](https://accessories.allwomenstalk.com/steps-to-organise-your-handbag-for-super-lazy-girls/)
-- [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
 - [perfect bag for travel](https://bags.allwomenstalk.com/heres-how-to-choose-the-perfect-travel-bag/)
-- [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
-- [cute beach bags](https://bags.allwomenstalk.com/the-cutest-beach-bags-that-you-can-carry-anywhere/)
-- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
-- [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
-- [spring coach handbags](https://bags.allwomenstalk.com/the-2-0-1-7-spring-range-of-bags-from-coach-is-awesome-af/)
-- [the kind of bag you might carry lunch in](https://bags.allwomenstalk.com/the-trendiest-ways-to-carry-lunch-on-the-go/)
+- [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
 - [really expensive bag](https://bags.allwomenstalk.com/the-most-expensive-handbags-in-the-world/)
+- [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
+- [the kind of bag you might carry lunch in](https://bags.allwomenstalk.com/the-trendiest-ways-to-carry-lunch-on-the-go/)
+- [spring coach handbags](https://bags.allwomenstalk.com/the-2-0-1-7-spring-range-of-bags-from-coach-is-awesome-af/)
+- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
+- [cute beach bags](https://bags.allwomenstalk.com/the-cutest-beach-bags-that-you-can-carry-anywhere/)
+- [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
 - [8 Great Bags by Deux Lux ...](https://bags.allwomenstalk.com/8-great-bags-by-deux-lux/)
 - [8 Brand Name Bags on Sale Now ...](https://bags.allwomenstalk.com/8-brand-name-bags-on-sale-now/)
 

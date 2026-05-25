@@ -59,16 +59,16 @@ Luggage tags are not only functional, but can be quite personal too. Let your in
 
 ## Related Posts
 
-- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
 - [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
+- [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
+- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
+- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
+- [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
 - [tods g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
 - [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
-- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
-- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
-- [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
-- [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
+- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
 - [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
-- [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
 - [7 Funky Fringed Bags ...](https://bags.allwomenstalk.com/7-funky-fringed-bags/)
 

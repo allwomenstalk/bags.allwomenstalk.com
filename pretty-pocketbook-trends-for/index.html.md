@@ -178,16 +178,16 @@ Which ones are you planning to add to your collection?
 
 ## Related Posts
 
-- [10 Newest and Coolest Fashion Trends for Fall 2016...](https://fashion.allwomenstalk.com/newest-and-coolest-fashion-trends-for-fall/)
-- [Street Style Inspirations That Will Make You Love ...](https://streetstyle.allwomenstalk.com/street-style-inspirations-that-will-make-you-love-the-pantone-color-of-the-year/)
-- [Hottest Fashion Trends All Girls Must Try in 2016 ...](https://fashion.allwomenstalk.com/hottest-fashion-trends-all-girls-must-try-in/)
-- [2015 Food Trends We All Hope Will Continue into 20...](https://food.allwomenstalk.com/food-trends-we-all-hope-will-continue-into/)
-- [10 Best Fall Fashion Trends for Short Girls ...](https://fashion.allwomenstalk.com/best-fall-fashion-trends-for-short-girls/)
-- [lip trends](https://makeup.allwomenstalk.com/see-how-lip-trends-have-changed-over-years/)
-- [Keep an Eye out for These Sexy 2016 Trends ...](https://fashion.allwomenstalk.com/keep-an-eye-out-for-these-sexy-trends/)
-- [Try These 17 Pretty Trends for Prom 2016 ...](https://teen.allwomenstalk.com/try-these-pretty-trends-for-prom/)
 - [Pinterest Named the Hottest Colors of the Year ...](https://fashion.allwomenstalk.com/pinterest-named-the-hottest-colors-of-the-year/)
+- [lip trends](https://makeup.allwomenstalk.com/see-how-lip-trends-have-changed-over-years/)
+- [Hottest Fashion Trends All Girls Must Try in 2016 ...](https://fashion.allwomenstalk.com/hottest-fashion-trends-all-girls-must-try-in/)
+- [10 Best Fall Fashion Trends for Short Girls ...](https://fashion.allwomenstalk.com/best-fall-fashion-trends-for-short-girls/)
+- [Street Style Inspirations That Will Make You Love ...](https://streetstyle.allwomenstalk.com/street-style-inspirations-that-will-make-you-love-the-pantone-color-of-the-year/)
+- [Keep an Eye out for These Sexy 2016 Trends ...](https://fashion.allwomenstalk.com/keep-an-eye-out-for-these-sexy-trends/)
+- [2015 Food Trends We All Hope Will Continue into 20...](https://food.allwomenstalk.com/food-trends-we-all-hope-will-continue-into/)
+- [10 Newest and Coolest Fashion Trends for Fall 2016...](https://fashion.allwomenstalk.com/newest-and-coolest-fashion-trends-for-fall/)
 - [Secret Trends for Fall You Have to Try ...](https://fashion.allwomenstalk.com/secret-trends-for-fall-you-have-to-try/)
+- [Try These 17 Pretty Trends for Prom 2016 ...](https://teen.allwomenstalk.com/try-these-pretty-trends-for-prom/)
 - [9 Hottest Bag Trends of This Season ...](https://bags.allwomenstalk.com/hottest-bag-trends-of-this-season/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 
