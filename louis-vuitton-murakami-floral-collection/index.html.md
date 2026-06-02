@@ -3,7 +3,7 @@ title: "Embracing Floral Elegance: The Louis Vuitton x Murakami Collection"
 description: "A Blossoming Collaboration; Fashion Meets Art; More ..."
 url: "https://bags.allwomenstalk.com/louis-vuitton-murakami-floral-collection/"
 category: "bags"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Embracing Floral Elegance: The Louis Vuitton x Murakami Collection
