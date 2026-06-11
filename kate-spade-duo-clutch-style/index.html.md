@@ -3,7 +3,7 @@ title: "Why Everyone Is Obsessed with Kate Spade’s Duo Clutch This Season ..."
 description: "The Effortless Cool of Charli D’Amelio and the Duo Clutch; Why the Duo Clutch Is Suddenly Everywhere; Making It Your Own: Styling Inspiration; The Power of Accessories: Why Bags Matter More Than Ever; Why I’m Crushing on Kate Spade’s Latest Drop; More ..."
 url: "https://bags.allwomenstalk.com/kate-spade-duo-clutch-style/"
 category: "bags"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Why Everyone Is Obsessed with Kate Spade’s Duo Clutch This Season ...
