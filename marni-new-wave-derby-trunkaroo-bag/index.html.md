@@ -3,7 +3,7 @@ title: "The Story Behind Marni's New Wave Derby and Trunkaroo Bag..."
 description: "The New Wave Derby: Echoes of Elegance and Edginess; A Glimpse of Modern Luxury: The Trunkaroo Bag; The Creative Vision: Behind the Scenes at Marni; The Art of Dressing: Jackets and Trousers That Echo Style; Embrace the Spirit of Experimentation; More ..."
 url: "https://bags.allwomenstalk.com/marni-new-wave-derby-trunkaroo-bag/"
 category: "bags"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # The Story Behind Marni's New Wave Derby and Trunkaroo Bag...
