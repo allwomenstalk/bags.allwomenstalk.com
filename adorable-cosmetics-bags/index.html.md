@@ -56,16 +56,16 @@ Throw out your old, dingy makeup bag and stay organized and cute with these ador
 
 ## Related Posts
 
-- [paris riche le stylo smoky eye shadow rose](https://makeup.allwomenstalk.com/gorgeous-makeup-shades-for-fall-thatll-look-good-on-anyone-that-wears-them/)
-- [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
-- [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
-- [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
-- [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
-- [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
-- [goth alternative makeup](https://makeup.allwomenstalk.com/dark-beauty-products-for-a-gothic-makeup-look/)
 - [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
 - [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
+- [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
+- [paris riche le stylo smoky eye shadow rose](https://makeup.allwomenstalk.com/gorgeous-makeup-shades-for-fall-thatll-look-good-on-anyone-that-wears-them/)
+- [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
+- [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
+- [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
+- [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
 - [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
+- [goth alternative makeup](https://makeup.allwomenstalk.com/dark-beauty-products-for-a-gothic-makeup-look/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 

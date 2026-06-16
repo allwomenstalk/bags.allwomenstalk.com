@@ -166,15 +166,15 @@ I love this color... again, very classic and very classy!
 
 ## Related Posts
 
-- [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
 - [perfect bag for travel](https://bags.allwomenstalk.com/heres-how-to-choose-the-perfect-travel-bag/)
-- [cheap purses that look expensive](https://bags.allwomenstalk.com/affordable-bags-that-look-like-luxury-bags/)
-- [how to wear messenger bag](https://bags.allwomenstalk.com/streetstyle-tips-for-carrying-a-messenger-bag/)
-- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
 - [what's a pocketbook](https://bags.allwomenstalk.com/pocketbook-essentials-to-keep-in-your-bag-all-throughout-fall/)
+- [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
 - [the kind of bag you might carry lunch in](https://bags.allwomenstalk.com/the-trendiest-ways-to-carry-lunch-on-the-go/)
 - [amazing backpacks](https://bags.allwomenstalk.com/amazing-backpacks-youll-want-to-rush-out-to-buy/)
-- [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
+- [how to wear messenger bag](https://bags.allwomenstalk.com/streetstyle-tips-for-carrying-a-messenger-bag/)
+- [cheap purses that look expensive](https://bags.allwomenstalk.com/affordable-bags-that-look-like-luxury-bags/)
+- [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
+- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
 - [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
 - [8 Great School Bags for Grown-Ups ...](https://bags.allwomenstalk.com/8-great-school-bags-for-grown-ups/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)

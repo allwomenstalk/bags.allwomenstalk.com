@@ -70,16 +70,16 @@ Top Photo Source: [heycrazy.wordpress.com](https://heycrazy.wordpress.com/2011/0
 
 ## Related Posts
 
-- [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
-- [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
-- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
-- [oversized clutches](https://bags.allwomenstalk.com/gorgeous-oversized-clutches/)
 - [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
-- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
+- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
 - [dakota purse](https://bags.allwomenstalk.com/pretty-purses-by-melie-bianco/)
 - [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
-- [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
+- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [oversized clutches](https://bags.allwomenstalk.com/gorgeous-oversized-clutches/)
+- [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
+- [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
 - [8 Gorgeous Tiffany Handbags ...](https://bags.allwomenstalk.com/8-gorgeous-tiffany-handbags/)
 - [8 Gorgeous Chloé Handbags ...](https://bags.allwomenstalk.com/8-gorgeous-chloe-handbags/)
 

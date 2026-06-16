@@ -77,16 +77,16 @@ Clearly, I found a lot of really pretty bags for a night on the town – and I t
 
 ## Related Posts
 
-- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
 - [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
-- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
-- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
-- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 - [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
+- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
 - [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
 - [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
 - [chic luggage tags](https://bags.allwomenstalk.com/stylish-luggage-tags/)
+- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
 - [8 Cross-Body Bags ...](https://bags.allwomenstalk.com/cross-body-bags/)
+- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 - [9 Exciting Spring Break Destinations ...](https://travel.allwomenstalk.com/9-exciting-spring-break-destinations/)
 - [9 European Cities Not to Miss ...](https://travel.allwomenstalk.com/european-cities-not-to-miss/)
 

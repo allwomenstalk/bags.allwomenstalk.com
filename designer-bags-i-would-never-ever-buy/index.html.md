@@ -58,16 +58,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/15485046)
 
 ## Related Posts
 
-- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
-- [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
-- [dakota purse](https://bags.allwomenstalk.com/pretty-purses-by-melie-bianco/)
-- [little black bags](https://bags.allwomenstalk.com/lovely-little-bags-for-your-lbd/)
-- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
 - [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
+- [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
+- [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
+- [dakota purse](https://bags.allwomenstalk.com/pretty-purses-by-melie-bianco/)
 - [oversized clutches](https://bags.allwomenstalk.com/gorgeous-oversized-clutches/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
+- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
 - [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
-- [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
+- [little black bags](https://bags.allwomenstalk.com/lovely-little-bags-for-your-lbd/)
 - [7 Reasons Why a Girl Can Never Have Enough Bags .....](https://bags.allwomenstalk.com/7-reasons-why-a-girl-can-never-have-enough-bags/)
 - [9 Signs Your Frenemy's Designer Bag is Fake ...](https://allwomenstalk.com/10-ways-to-spot-a-fake-designer-bag/)
 

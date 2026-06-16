@@ -42,16 +42,16 @@ What are your tips for buying luggage and travel gear? Let me know what tips you
 
 ## Related Posts
 
-- [really expensive bag](https://bags.allwomenstalk.com/the-most-expensive-handbags-in-the-world/)
-- [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
 - [handbag organisation ideas](https://accessories.allwomenstalk.com/steps-to-organise-your-handbag-for-super-lazy-girls/)
-- [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
+- [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
+- [really expensive bag](https://bags.allwomenstalk.com/the-most-expensive-handbags-in-the-world/)
 - [cute beach bags](https://bags.allwomenstalk.com/the-cutest-beach-bags-that-you-can-carry-anywhere/)
+- [emma watson camel toe](https://bags.allwomenstalk.com/how-to-carry-your-bag-like-a-celebrity/)
 - [spring coach handbags](https://bags.allwomenstalk.com/the-2-0-1-7-spring-range-of-bags-from-coach-is-awesome-af/)
+- [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
+- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
 - [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
 - [the kind of bag you might carry lunch in](https://bags.allwomenstalk.com/the-trendiest-ways-to-carry-lunch-on-the-go/)
-- [emma watson camel toe](https://bags.allwomenstalk.com/how-to-carry-your-bag-like-a-celebrity/)
-- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
 - [8 Happening Day Bags to Take Anywhere ...](https://bags.allwomenstalk.com/happening-day-bags-to-take-anywhere/)
 - [7 Messenger Bags to Carry All Day ...](https://bags.allwomenstalk.com/messenger-bags-to-carry-all-day/)
 

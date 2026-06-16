@@ -116,16 +116,16 @@ If you keep these things in your bag, you'll never have to worry again. What do 
 
 ## Related Posts
 
-- [how to wear messenger bag](https://bags.allwomenstalk.com/streetstyle-tips-for-carrying-a-messenger-bag/)
-- [really expensive bag](https://bags.allwomenstalk.com/the-most-expensive-handbags-in-the-world/)
-- [the kind of bag you might carry lunch in](https://bags.allwomenstalk.com/the-trendiest-ways-to-carry-lunch-on-the-go/)
-- [cheap purses that look expensive](https://bags.allwomenstalk.com/affordable-bags-that-look-like-luxury-bags/)
+- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
 - [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
 - [handbag organisation ideas](https://accessories.allwomenstalk.com/steps-to-organise-your-handbag-for-super-lazy-girls/)
-- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
 - [perfect bag for travel](https://bags.allwomenstalk.com/heres-how-to-choose-the-perfect-travel-bag/)
-- [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
+- [the kind of bag you might carry lunch in](https://bags.allwomenstalk.com/the-trendiest-ways-to-carry-lunch-on-the-go/)
+- [how to wear messenger bag](https://bags.allwomenstalk.com/streetstyle-tips-for-carrying-a-messenger-bag/)
 - [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
+- [really expensive bag](https://bags.allwomenstalk.com/the-most-expensive-handbags-in-the-world/)
+- [cheap purses that look expensive](https://bags.allwomenstalk.com/affordable-bags-that-look-like-luxury-bags/)
+- [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
 - [7 Things to Remember in Your Diaper Bag ...](https://parenting.allwomenstalk.com/7-things-to-remember-in-your-diaper-bag/)
 - [8 Things to Keep in Your Wallet ...](https://allwomenstalk.com/8-things-to-keep-in-your-wallet/)
 

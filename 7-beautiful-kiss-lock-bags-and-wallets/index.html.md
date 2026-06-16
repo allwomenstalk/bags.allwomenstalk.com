@@ -63,16 +63,16 @@ Those are my favorite new bags, and I can’t wait to add that floral-print one 
 
 ## Related Posts
 
-- [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 - [10 Fabulous Travel Bags ...](https://bags.allwomenstalk.com/fabulous-travel-bags/)
-- [oversized clutches](https://bags.allwomenstalk.com/gorgeous-oversized-clutches/)
-- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
-- [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
 - [little black bags](https://bags.allwomenstalk.com/lovely-little-bags-for-your-lbd/)
+- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
+- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
 - [dakota purse](https://bags.allwomenstalk.com/pretty-purses-by-melie-bianco/)
-- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
+- [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 - [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
+- [oversized clutches](https://bags.allwomenstalk.com/gorgeous-oversized-clutches/)
+- [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
 - [7 Tiny Purses with Big Style ...](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
 - [9 Cute Clutch Bags ...](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 

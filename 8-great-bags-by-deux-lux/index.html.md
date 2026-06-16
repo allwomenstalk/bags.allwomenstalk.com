@@ -63,16 +63,16 @@ That’s just a sampling of the marvelous line of bags by Deux Lux… and I love
 
 ## Related Posts
 
-- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
-- [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
-- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
 - [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
-- [chic luggage tags](https://bags.allwomenstalk.com/stylish-luggage-tags/)
-- [8 Cross-Body Bags ...](https://bags.allwomenstalk.com/cross-body-bags/)
 - [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
+- [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
+- [chic luggage tags](https://bags.allwomenstalk.com/stylish-luggage-tags/)
+- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
 - [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
 - [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
+- [8 Cross-Body Bags ...](https://bags.allwomenstalk.com/cross-body-bags/)
 - [9 Bags for a Night on the Town ...](https://bags.allwomenstalk.com/bags-for-a-night-on-the-town/)
+- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 - [8 Brand Name Bags on Sale Now ...](https://bags.allwomenstalk.com/8-brand-name-bags-on-sale-now/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 

@@ -64,16 +64,16 @@ Top Image Source: [thebeautybutton.co.uk](https://goo.gl/MLtih7)
 
 ## Related Posts
 
-- [novelty shaped handbags](https://bags.allwomenstalk.com/fun-and-fashionable-novelty-handbags/)
-- [old handbag makeover](https://bags.allwomenstalk.com/ways-to-make-over-your-handbag/)
-- [carrying a big bag](https://bags.allwomenstalk.com/tips-on-how-to-carry-a-heavy-bag-and-look-fabulous/)
-- [handbag items](https://bags.allwomenstalk.com/essential-items-for-your-handbag/)
 - [cute makeup bags](https://beauty.allwomenstalk.com/chic-and-cute-makeup-bags/)
-- [metallic purses](https://bags.allwomenstalk.com/metallic-bags-to-tote-this-season/)
 - [holiday evening bag](https://bags.allwomenstalk.com/must-have-holiday-evening-bags/)
-- [celebrity designer bags](https://bags.allwomenstalk.com/iconic-bags-named-after-celebrities/)
+- [carrying a big bag](https://bags.allwomenstalk.com/tips-on-how-to-carry-a-heavy-bag-and-look-fabulous/)
 - [simple gym bag](https://lifestyle.allwomenstalk.com/perfect-gym-bags/)
+- [handbag items](https://bags.allwomenstalk.com/essential-items-for-your-handbag/)
+- [old handbag makeover](https://bags.allwomenstalk.com/ways-to-make-over-your-handbag/)
+- [novelty shaped handbags](https://bags.allwomenstalk.com/fun-and-fashionable-novelty-handbags/)
 - [quirky bags](https://bags.allwomenstalk.com/quirky-bags-to-buy-this-season/)
+- [celebrity designer bags](https://bags.allwomenstalk.com/iconic-bags-named-after-celebrities/)
+- [metallic purses](https://bags.allwomenstalk.com/metallic-bags-to-tote-this-season/)
 - [8 Handbag Styles to Compliment Your Body Type ...](https://bags.allwomenstalk.com/8-handbag-styles-to-compliment-your-body-type/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 
