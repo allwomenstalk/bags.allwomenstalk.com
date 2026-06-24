@@ -3,7 +3,7 @@ title: "Iconic Bags You May Not Have Known 🤔 Were Inspired by Iconic Women ..
 description: "Hermés Birkin Bag – Jane Birkin; Gucci Jackie Bag – Jackie (Kennedy) Onassis; Ballin Amal Bag – Amal Clooney; Gucci Bardot Bag – Bridget Bardot; Lady Dior Bag –Diana Princess of Wales; More ..."
 url: "https://bags.allwomenstalk.com/iconic-bags-inspired-by-iconic-women/"
 category: "bags"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Iconic Bags You May Not Have Known 🤔 Were Inspired by Iconic Women ...
@@ -68,16 +68,16 @@ I don’t know about you but with bags being named after the likes of Cara Delav
 
 ## Related Posts
 
-- [modcloth bags](https://bags.allwomenstalk.com/fab-bags-for-college-girls/)
 - [handbag vogue](https://bags.allwomenstalk.com/these-are-the-handbags-vogue-went-crazy-for/)
+- [how to wear messenger bag](https://bags.allwomenstalk.com/streetstyle-tips-for-carrying-a-messenger-bag/)
+- [what's a pocketbook](https://bags.allwomenstalk.com/pocketbook-essentials-to-keep-in-your-bag-all-throughout-fall/)
+- [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
 - [amazing backpacks](https://bags.allwomenstalk.com/amazing-backpacks-youll-want-to-rush-out-to-buy/)
+- [modcloth bags](https://bags.allwomenstalk.com/fab-bags-for-college-girls/)
+- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
 - [pocketbooks](https://bags.allwomenstalk.com/the-perfect-pastel-pocketbooks-to-carry-in-spring/)
 - [perfect bag for travel](https://bags.allwomenstalk.com/heres-how-to-choose-the-perfect-travel-bag/)
 - [cheap purses that look expensive](https://bags.allwomenstalk.com/affordable-bags-that-look-like-luxury-bags/)
-- [what's a pocketbook](https://bags.allwomenstalk.com/pocketbook-essentials-to-keep-in-your-bag-all-throughout-fall/)
-- [perfect handbag](https://bags.allwomenstalk.com/which-purse-would-be-perfect-for-you/)
-- [how to wear messenger bag](https://bags.allwomenstalk.com/streetstyle-tips-for-carrying-a-messenger-bag/)
-- [16th century bags](https://bags.allwomenstalk.com/the-history-of-handbags/)
 - [7 Ladylike Bags ...](https://bags.allwomenstalk.com/7-ladylike-bags/)
 - [9 Designer Clutch Bags to Fall in Love with ...](https://bags.allwomenstalk.com/designer-clutch-bags-to-fall-in-love-with/)
 
