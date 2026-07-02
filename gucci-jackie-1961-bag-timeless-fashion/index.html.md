@@ -3,7 +3,7 @@ title: "The Fascinating Journey of Gucci's Jackie 1961..."
 description: "The Legacy of Craftsmanship; Behind the Scenes: Materials and Magic; Bringing It All Together; More Than Just an Accessory; More ..."
 url: "https://bags.allwomenstalk.com/gucci-jackie-1961-bag-timeless-fashion/"
 category: "bags"
-last_updated: "2026-06-24"
+last_updated: "2026-06-30"
 ---
 
 # The Fascinating Journey of Gucci's Jackie 1961...
