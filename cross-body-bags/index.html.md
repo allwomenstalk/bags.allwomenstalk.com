@@ -70,16 +70,16 @@ There are a variety of cross-body bags to suit all tastes and budgets. These are
 
 ## Related Posts
 
-- [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
-- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
 - [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
-- [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
-- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
-- [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
 - [chic luggage tags](https://bags.allwomenstalk.com/stylish-luggage-tags/)
+- [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
+- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
+- [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 - [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
 - [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
+- [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
 - [8 Great Bags by Deux Lux ...](https://bags.allwomenstalk.com/8-great-bags-by-deux-lux/)
 - [8 Handbag Styles to Compliment Your Body Type ...](https://bags.allwomenstalk.com/8-handbag-styles-to-compliment-your-body-type/)
 

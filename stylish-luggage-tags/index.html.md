@@ -59,16 +59,16 @@ Luggage tags are not only functional, but can be quite personal too. Let your in
 
 ## Related Posts
 
-- [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
 - [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
-- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
-- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
-- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
-- [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
-- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
-- [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
 - [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
+- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
+- [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
+- [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
+- [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
+- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
+- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
 - [7 Funky Fringed Bags ...](https://bags.allwomenstalk.com/7-funky-fringed-bags/)
 
