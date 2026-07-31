@@ -52,16 +52,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/15468143)
 
 ## Related Posts
 
-- [modcloth backpack](https://bags.allwomenstalk.com/7-great-big-bags/)
-- [deux lux out of business](https://bags.allwomenstalk.com/8-great-bags-by-deux-lux/)
-- [chic luggage tags](https://bags.allwomenstalk.com/stylish-luggage-tags/)
+- [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
+- [8 Cross-Body Bags ...](https://bags.allwomenstalk.com/cross-body-bags/)
+- [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
 - [9 Bags for a Night on the Town ...](https://bags.allwomenstalk.com/bags-for-a-night-on-the-town/)
 - [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
-- [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
-- [8 Cross-Body Bags ...](https://bags.allwomenstalk.com/cross-body-bags/)
 - [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
-- [bag under 50](https://bags.allwomenstalk.com/day-bags-for-under-50/)
-- [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
+- [deux lux out of business](https://bags.allwomenstalk.com/8-great-bags-by-deux-lux/)
+- [modcloth backpack](https://bags.allwomenstalk.com/7-great-big-bags/)
+- [chic luggage tags](https://bags.allwomenstalk.com/stylish-luggage-tags/)
+- [dior earrings canada](https://bags.allwomenstalk.com/easy-ways-to-spot-a-fake-dior-bag/)
 - [7 Classic Designer Shoes to Invest into ...](https://shoes.allwomenstalk.com/classic-designer-shoes-to-invest-into/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 

@@ -42,16 +42,16 @@ Stock your handbag with these fall essentials to be prepared for the season. Now
 
 ## Related Posts
 
-- [bridesmaid shawl fall](https://wedding.allwomenstalk.com/comfy-cover-ups-to-wear-to-a-winter-wedding/)
-- [street style shoes](https://streetstyle.allwomenstalk.com/adorable-street-style-outfits-with-leg-warmers-to-recreate/)
-- [slavic winter coat](https://streetstyle.allwomenstalk.com/bits-of-winter-street-style-inspiration-from-chilly-russia/)
-- [look winter](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-cozy-and-chic-this-winter/)
-- [street style accessories](https://streetstyle.allwomenstalk.com/must-have-street-style-accessories-this-winter/)
 - [fashionable cape](https://fashion.allwomenstalk.com/fashionable-capes-to-add-to-your-winter-wardrobe/)
-- [winter vest outfits](https://fashion.allwomenstalk.com/great-winter-vests-for-warmth-and-fashion/)
+- [street style shoes](https://streetstyle.allwomenstalk.com/adorable-street-style-outfits-with-leg-warmers-to-recreate/)
 - [womens hat and gloves](https://fashion.allwomenstalk.com/scarf-gloves-and-hat-sets-to-keep-out-the-cold/)
-- [batman beanies](https://fashion.allwomenstalk.com/geeky-beanies-for-your-fellow-nerd-to-wear-this-fall/)
 - [scarf winter outfits](https://fashion.allwomenstalk.com/scarf-it-up-fashionable-ways-to-wear-a-scarf-this-winter/)
+- [slavic winter coat](https://streetstyle.allwomenstalk.com/bits-of-winter-street-style-inspiration-from-chilly-russia/)
+- [bridesmaid shawl fall](https://wedding.allwomenstalk.com/comfy-cover-ups-to-wear-to-a-winter-wedding/)
+- [look winter](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-cozy-and-chic-this-winter/)
+- [batman beanies](https://fashion.allwomenstalk.com/geeky-beanies-for-your-fellow-nerd-to-wear-this-fall/)
+- [winter vest outfits](https://fashion.allwomenstalk.com/great-winter-vests-for-warmth-and-fashion/)
+- [street style accessories](https://streetstyle.allwomenstalk.com/must-have-street-style-accessories-this-winter/)
 - [7 Jewelry Basics Every Woman Should Own ...](https://jewelry.allwomenstalk.com/jewelry-basics-every-woman-should-own/)
 - [7 Style Essentials to Keep Nearby ...](https://fashion.allwomenstalk.com/style-essentials-to-keep-nearby/)
 

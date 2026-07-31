@@ -62,16 +62,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11363140)
 
 ## Related Posts
 
-- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
-- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
 - [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
-- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
-- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
+- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
+- [cute black clutch](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 - [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
-- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
-- [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
+- [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
+- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
 - [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
+- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
 - [8 Great Bags by Deux Lux ...](https://bags.allwomenstalk.com/8-great-bags-by-deux-lux/)
 - [8 Cute Crossbody Bags ...](https://bags.allwomenstalk.com/8-cute-crossbody-bags/)
 

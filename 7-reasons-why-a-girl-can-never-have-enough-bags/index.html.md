@@ -44,16 +44,16 @@ Top Photo Credit: [dilunah](https://www.flickr.com/photos/dilunah/5343968632/)
 
 ## Related Posts
 
-- [8 Handbag Styles to Compliment Your Body Type ...](https://bags.allwomenstalk.com/8-handbag-styles-to-compliment-your-body-type/)
 - [7 Colour Block Bags ...](https://bags.allwomenstalk.com/colour-block-bags/)
-- [leather bag charms](https://bags.allwomenstalk.com/8-brilliant-bag-charms/)
 - [7 Funky Fringed Bags ...](https://bags.allwomenstalk.com/7-funky-fringed-bags/)
+- [advantages of bag](https://bags.allwomenstalk.com/7-advantages-of-huge-bags/)
 - [8 Fab Studded Bags ...](https://bags.allwomenstalk.com/fab-studded-bags/)
+- [leather bag charms](https://bags.allwomenstalk.com/8-brilliant-bag-charms/)
+- [8 Handbag Styles to Compliment Your Body Type ...](https://bags.allwomenstalk.com/8-handbag-styles-to-compliment-your-body-type/)
+- [tiny purses](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
+- [colourful wallets](https://bags.allwomenstalk.com/colourful-wallets/)
 - [9 Large Bags You'll Love to Take Anywhere with You...](https://bags.allwomenstalk.com/large-bags-youll-love-to-take-anywhere-with-you/)
 - [vera bradley eloise](https://bags.allwomenstalk.com/8-colorful-vera-bradley-bags-for-spring-break/)
-- [colourful wallets](https://bags.allwomenstalk.com/colourful-wallets/)
-- [advantages of bag](https://bags.allwomenstalk.com/7-advantages-of-huge-bags/)
-- [tiny purses](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 - [7 Ladylike Bags ...](https://bags.allwomenstalk.com/7-ladylike-bags/)
 
