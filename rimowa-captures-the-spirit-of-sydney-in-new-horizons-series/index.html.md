@@ -8,10 +8,6 @@ last_updated: "2026-08-31"
 
 # When RIMOWA Meets Sydney's Shores...
 
-**Slug**: rimowa-sydney-new-horizons-series
-
-**Tags**: rimowa, sydney, travel, photography
-
 Sydney’s stunning landscape takes center stage in the New Horizons series by [RIMOWA](https://www.instagram.com/rimowa/). With a focus on the city's vibrant eastern shoreline, renowned photographer [Derek Henderson](https://www.instagram.com/DerekHendersonPhoto/) expertly captures the harmonious blend of urban life and natural beauty. The series, highlighting iconic coastal vistas and art deco architecture, encapsulates Sydney’s allure through RIMOWA's unique perspective. This creative endeavor underscores the brand's dedication to celebrating diverse global landscapes, solidifying its leadership in luxury travel accessories.
 
 ## Early-Morning Beach Vibes
