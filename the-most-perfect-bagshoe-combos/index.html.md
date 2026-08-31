@@ -140,14 +140,14 @@ What rules do you use when you match your bag with your shoes?
 
 ## Related Posts
 
-- [Amazing Inexpensive Pocketbooks You've Got to Have...](https://bags.allwomenstalk.com/amazing-inexpensive-pocketbooks-youve-got-to-have-now/)
-- [The Secret Items Successful Women Carry in Their B...](https://bags.allwomenstalk.com/the-secret-items-successful-women-carry-in-their-bags/)
-- [17 Crescent Bags That'll Catch Everyone's Eye ...](https://bags.allwomenstalk.com/crescent-bags-thatll-catch-everyones-eye/)
-- [things a girl must have in her bag](https://bags.allwomenstalk.com/things-every-woman-should-have-in-her-purse/)
-- [216 Serious Handbag Inspo Every Accessory Obsessed...](https://bags.allwomenstalk.com/serious-handbag-inspo-every-accessory-obsessed-girl-must-see/)
-- [140 Fabulous Pics to Make You Love Your Purse ...](https://bags.allwomenstalk.com/fabulous-lv-pics-to-make-you-love-your-purse/)
-- [The Best Handbag Trends for Spring-Summer 2017 ...](https://bags.allwomenstalk.com/the-best-handbag-trends-for-spring-summer/)
 - [girl designer purses](https://bags.allwomenstalk.com/how-to-get-a-designer-handbag-for-half-its-price/)
+- [140 Fabulous Pics to Make You Love Your Purse ...](https://bags.allwomenstalk.com/fabulous-lv-pics-to-make-you-love-your-purse/)
+- [The Secret Items Successful Women Carry in Their B...](https://bags.allwomenstalk.com/the-secret-items-successful-women-carry-in-their-bags/)
+- [Amazing Inexpensive Pocketbooks You've Got to Have...](https://bags.allwomenstalk.com/amazing-inexpensive-pocketbooks-youve-got-to-have-now/)
+- [things a girl must have in her bag](https://bags.allwomenstalk.com/things-every-woman-should-have-in-her-purse/)
+- [The Best Handbag Trends for Spring-Summer 2017 ...](https://bags.allwomenstalk.com/the-best-handbag-trends-for-spring-summer/)
+- [17 Crescent Bags That'll Catch Everyone's Eye ...](https://bags.allwomenstalk.com/crescent-bags-thatll-catch-everyones-eye/)
+- [216 Serious Handbag Inspo Every Accessory Obsessed...](https://bags.allwomenstalk.com/serious-handbag-inspo-every-accessory-obsessed-girl-must-see/)
 - [Animal Print Bags That Will Make You Roar ...](https://bags.allwomenstalk.com/animal-print-bags-that-will-make-you-roar/)
 - [how to spot a fake designer handbag](https://bags.allwomenstalk.com/key-tips-to-help-you-know-how-to-spot-a-fake-designer-handbag/)
 - [7 Must Have Shoe Accessories ...](https://shoes.allwomenstalk.com/7-must-have-shoe-accessories/)

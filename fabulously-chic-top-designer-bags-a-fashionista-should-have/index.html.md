@@ -66,16 +66,16 @@ Top Image Source: _weheartit.com_
 
 ## Related Posts
 
-- [tiny purses](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
-- [never is enough](https://bags.allwomenstalk.com/7-reasons-why-a-girl-can-never-have-enough-bags/)
-- [8 Handbag Styles to Compliment Your Body Type ...](https://bags.allwomenstalk.com/8-handbag-styles-to-compliment-your-body-type/)
-- [vera bradley eloise](https://bags.allwomenstalk.com/8-colorful-vera-bradley-bags-for-spring-break/)
+- [9 Large Bags You'll Love to Take Anywhere with You...](https://bags.allwomenstalk.com/large-bags-youll-love-to-take-anywhere-with-you/)
 - [leather bag charms](https://bags.allwomenstalk.com/8-brilliant-bag-charms/)
+- [colourful wallets](https://bags.allwomenstalk.com/colourful-wallets/)
 - [7 Funky Fringed Bags ...](https://bags.allwomenstalk.com/7-funky-fringed-bags/)
+- [vera bradley eloise](https://bags.allwomenstalk.com/8-colorful-vera-bradley-bags-for-spring-break/)
 - [advantages of bag](https://bags.allwomenstalk.com/7-advantages-of-huge-bags/)
 - [7 Colour Block Bags ...](https://bags.allwomenstalk.com/colour-block-bags/)
-- [9 Large Bags You'll Love to Take Anywhere with You...](https://bags.allwomenstalk.com/large-bags-youll-love-to-take-anywhere-with-you/)
-- [colourful wallets](https://bags.allwomenstalk.com/colourful-wallets/)
+- [never is enough](https://bags.allwomenstalk.com/7-reasons-why-a-girl-can-never-have-enough-bags/)
+- [tiny purses](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
+- [8 Handbag Styles to Compliment Your Body Type ...](https://bags.allwomenstalk.com/8-handbag-styles-to-compliment-your-body-type/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 - [9 Designer Clutch Bags to Fall in Love with ...](https://bags.allwomenstalk.com/designer-clutch-bags-to-fall-in-love-with/)
 

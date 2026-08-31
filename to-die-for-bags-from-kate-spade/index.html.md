@@ -56,16 +56,16 @@ I would be happy to carry any one of these Kate Spade bags – but, of course, I
 
 ## Related Posts
 
-- [quirky purses](https://bags.allwomenstalk.com/cute-and-quirky-handbags-to-add-to-your-collection/)
-- [sewing must haves](https://diy.allwomenstalk.com/must-haves-for-anyone-who-wants-to-sew-bags/)
-- [essentials to keep in your purse](https://bags.allwomenstalk.com/essential-items-to-keep-in-your-purse-at-all-times/)
-- [cutting implements drawing](https://diy.allwomenstalk.com/bag-making-essentials-for-beginners/)
-- [snatch bag](https://lifestyle.allwomenstalk.com/tips-to-thwart-handbag-snatching-for-good/)
-- [stylish shopper bag](https://bags.allwomenstalk.com/stylish-shopper-bags-roomy-enough-for-your-everyday-essentials/)
 - [what should you carry in your wallet](https://lifestyle.allwomenstalk.com/handy-things-to-carry-in-your-wallet/)
+- [cutting implements drawing](https://diy.allwomenstalk.com/bag-making-essentials-for-beginners/)
+- [quirky purses](https://bags.allwomenstalk.com/cute-and-quirky-handbags-to-add-to-your-collection/)
+- [stylish shopper bag](https://bags.allwomenstalk.com/stylish-shopper-bags-roomy-enough-for-your-everyday-essentials/)
+- [snatch bag](https://lifestyle.allwomenstalk.com/tips-to-thwart-handbag-snatching-for-good/)
+- [essentials to keep in your purse](https://bags.allwomenstalk.com/essential-items-to-keep-in-your-purse-at-all-times/)
+- [sewing must haves](https://diy.allwomenstalk.com/must-haves-for-anyone-who-wants-to-sew-bags/)
 - [carhartt backpack 28l](https://fashion.allwomenstalk.com/alternatives-to-a-backpack-for-class/)
-- [how to style bags with outfits](https://bags.allwomenstalk.com/stylish-bucket-bags-to-top-off-your-slouchy-outfits-with/)
 - [envelope clutch pattern](https://diy.allwomenstalk.com/elegant-and-stylish-diy-envelope-clutches/)
+- [how to style bags with outfits](https://bags.allwomenstalk.com/stylish-bucket-bags-to-top-off-your-slouchy-outfits-with/)
 - [7 Chic Bags by Tod's ...](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 
