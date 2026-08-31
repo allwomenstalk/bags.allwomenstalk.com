@@ -48,14 +48,14 @@ There are lots of lifestyle changes we can make to prevent injury from carrying 
 
 - [kate spade bag pink](https://bags.allwomenstalk.com/to-die-for-bags-from-kate-spade/)
 - [art deco clutch](https://bags.allwomenstalk.com/daring-art-deco-inspired-clutches/)
+- [what should you carry in your wallet](https://lifestyle.allwomenstalk.com/handy-things-to-carry-in-your-wallet/)
+- [cutting implements drawing](https://diy.allwomenstalk.com/bag-making-essentials-for-beginners/)
 - [boy diaper bags](https://parenting.allwomenstalk.com/cute-alternatives-to-diaper-bags/)
 - [celebrity designer bags](https://bags.allwomenstalk.com/iconic-bags-named-after-celebrities/)
 - [handbag items](https://bags.allwomenstalk.com/essential-items-for-your-handbag/)
-- [what should you carry in your wallet](https://lifestyle.allwomenstalk.com/handy-things-to-carry-in-your-wallet/)
 - [simple gym bag](https://lifestyle.allwomenstalk.com/perfect-gym-bags/)
 - [novelty shaped handbags](https://bags.allwomenstalk.com/fun-and-fashionable-novelty-handbags/)
 - [essentials to keep in your purse](https://bags.allwomenstalk.com/essential-items-to-keep-in-your-purse-at-all-times/)
-- [cutting implements drawing](https://diy.allwomenstalk.com/bag-making-essentials-for-beginners/)
 - [8 Best Fashion Tips of All Time ...](https://fashion.allwomenstalk.com/best-fashion-tips-of-all-time/)
 - [8 Handbag Styles to Compliment Your Body Type ...](https://bags.allwomenstalk.com/8-handbag-styles-to-compliment-your-body-type/)
 

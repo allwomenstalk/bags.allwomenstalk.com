@@ -64,16 +64,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/23631480/via/erinb
 
 ## Related Posts
 
-- [7 Great Ways to Organize Your Purses ...](https://bags.allwomenstalk.com/great-ways-to-organize-your-purses/)
-- [7 Perfect Travel Bags You Should Own ...](https://bags.allwomenstalk.com/perfect-travel-bags-you-should-own/)
 - [envelope style handbags](https://bags.allwomenstalk.com/classic-envelope-clutches-you-should-own/)
-- [diy designer bag](https://bags.allwomenstalk.com/designer-bag-inspired-diys/)
-- [trendy pouches](https://bags.allwomenstalk.com/fashionable-pouch-bags-for-women/)
-- [school satchels](https://bags.allwomenstalk.com/gorgeous-satchels-for-school/)
-- [bag under 50](https://bags.allwomenstalk.com/best-carry-all-bags-under-50/)
-- [7 Hot Tote Bags for 2013 ...](https://bags.allwomenstalk.com/hot-tote-bags-for/)
+- [7 Perfect Travel Bags You Should Own ...](https://bags.allwomenstalk.com/perfect-travel-bags-you-should-own/)
 - [8 of the Best Bag Trends Right Now ...](https://bags.allwomenstalk.com/of-the-best-bag-trends-right-now/)
+- [7 Great Ways to Organize Your Purses ...](https://bags.allwomenstalk.com/great-ways-to-organize-your-purses/)
 - [edgy backpacks](https://bags.allwomenstalk.com/stylish-backpacks-to-sport-for-fall/)
+- [bag under 50](https://bags.allwomenstalk.com/best-carry-all-bags-under-50/)
+- [diy designer bag](https://bags.allwomenstalk.com/designer-bag-inspired-diys/)
+- [school satchels](https://bags.allwomenstalk.com/gorgeous-satchels-for-school/)
+- [trendy pouches](https://bags.allwomenstalk.com/fashionable-pouch-bags-for-women/)
+- [7 Hot Tote Bags for 2013 ...](https://bags.allwomenstalk.com/hot-tote-bags-for/)
 - [7 Fabulous Make-up Bags ...](https://bags.allwomenstalk.com/7-fabulous-make-up-bags/)
 - [7 Chic Bags by Tod's ...](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
 

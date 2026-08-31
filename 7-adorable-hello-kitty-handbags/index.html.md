@@ -64,14 +64,14 @@ See? How am I ever supposed to get over my Hello Kitty obsession with these darl
 ## Related Posts
 
 - [dakota purse](https://bags.allwomenstalk.com/pretty-purses-by-melie-bianco/)
-- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
 - [8 Gorgeous Brown Bags ...](https://bags.allwomenstalk.com/8-gorgeous-brown-bags/)
-- [10 Fabulous Travel Bags ...](https://bags.allwomenstalk.com/fabulous-travel-bags/)
 - [oversized clutches](https://bags.allwomenstalk.com/gorgeous-oversized-clutches/)
-- [little black bags](https://bags.allwomenstalk.com/lovely-little-bags-for-your-lbd/)
-- [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
+- [10 Fabulous Travel Bags ...](https://bags.allwomenstalk.com/fabulous-travel-bags/)
 - [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
+- [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
+- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
+- [little black bags](https://bags.allwomenstalk.com/lovely-little-bags-for-your-lbd/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 - [7 Tiny Purses with Big Style ...](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
 - [7 Trendy Twist-lock Handbags ...](https://bags.allwomenstalk.com/7-trendy-twist-lock-handbags/)

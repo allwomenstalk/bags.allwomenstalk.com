@@ -56,16 +56,16 @@ These are just a few iconic bags that have been named after celebrities. Certain
 
 ## Related Posts
 
-- [what should you carry in your wallet](https://lifestyle.allwomenstalk.com/handy-things-to-carry-in-your-wallet/)
-- [sewing must haves](https://diy.allwomenstalk.com/must-haves-for-anyone-who-wants-to-sew-bags/)
 - [boy diaper bags](https://parenting.allwomenstalk.com/cute-alternatives-to-diaper-bags/)
-- [cutting implements drawing](https://diy.allwomenstalk.com/bag-making-essentials-for-beginners/)
-- [essentials to keep in your purse](https://bags.allwomenstalk.com/essential-items-to-keep-in-your-purse-at-all-times/)
-- [how to style bags with outfits](https://bags.allwomenstalk.com/stylish-bucket-bags-to-top-off-your-slouchy-outfits-with/)
 - [art deco clutch](https://bags.allwomenstalk.com/daring-art-deco-inspired-clutches/)
-- [kate spade bag pink](https://bags.allwomenstalk.com/to-die-for-bags-from-kate-spade/)
+- [essentials to keep in your purse](https://bags.allwomenstalk.com/essential-items-to-keep-in-your-purse-at-all-times/)
+- [sewing must haves](https://diy.allwomenstalk.com/must-haves-for-anyone-who-wants-to-sew-bags/)
 - [carhartt backpack 28l](https://fashion.allwomenstalk.com/alternatives-to-a-backpack-for-class/)
 - [envelope clutch pattern](https://diy.allwomenstalk.com/elegant-and-stylish-diy-envelope-clutches/)
+- [how to style bags with outfits](https://bags.allwomenstalk.com/stylish-bucket-bags-to-top-off-your-slouchy-outfits-with/)
+- [kate spade bag pink](https://bags.allwomenstalk.com/to-die-for-bags-from-kate-spade/)
+- [cutting implements drawing](https://diy.allwomenstalk.com/bag-making-essentials-for-beginners/)
+- [what should you carry in your wallet](https://lifestyle.allwomenstalk.com/handy-things-to-carry-in-your-wallet/)
 - [7 Tiny Purses with Big Style ...](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
 
