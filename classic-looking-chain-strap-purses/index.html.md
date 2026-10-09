@@ -75,16 +75,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/5775853)
 
 ## Related Posts
 
-- [designer bags at nordstrom](https://fashion.allwomenstalk.com/fabulous-designer-bags-under-300/)
-- [chic shoulder bags](https://bags.allwomenstalk.com/chic-colored-shoulder-bags/)
-- [collectorsweekly](https://allwomenstalk.com/designer-heaven-collectorsweekly-wrangles-hot-vintage-handbags/)
-- [juicy couture shoulder bag](https://bags.allwomenstalk.com/fashionable-juicy-handbag-id-kill-for/)
-- [should i buy chanel bag](https://fashion.allwomenstalk.com/good-reasons-to-buy-a-chanel-2-55-flap-bag/)
 - [coach c pattern layouts](https://bags.allwomenstalk.com/ways-to-tell-a-fake-coach-purse/)
-- [colorful leather bags](https://bags.allwomenstalk.com/fun-colorful-handbags-for-summer/)
-- [simple homemade clutch](https://lifestyle.allwomenstalk.com/pretty-clutch-bags-to-make/)
 - [thomas wylde bag](https://lifestyle.allwomenstalk.com/amazing-u-handbag-tutorials/)
+- [colorful leather bags](https://bags.allwomenstalk.com/fun-colorful-handbags-for-summer/)
+- [juicy couture shoulder bag](https://bags.allwomenstalk.com/fashionable-juicy-handbag-id-kill-for/)
 - [raffia purses](https://bags.allwomenstalk.com/stylish-and-summery-raffia-bags/)
+- [designer bags at nordstrom](https://fashion.allwomenstalk.com/fabulous-designer-bags-under-300/)
+- [should i buy chanel bag](https://fashion.allwomenstalk.com/good-reasons-to-buy-a-chanel-2-55-flap-bag/)
+- [chic shoulder bags](https://bags.allwomenstalk.com/chic-colored-shoulder-bags/)
+- [simple homemade clutch](https://lifestyle.allwomenstalk.com/pretty-clutch-bags-to-make/)
+- [collectorsweekly](https://allwomenstalk.com/designer-heaven-collectorsweekly-wrangles-hot-vintage-handbags/)
 - [7 Tiny Purses with Big Style ...](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
 - [9 Cute Clutch Bags ...](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 

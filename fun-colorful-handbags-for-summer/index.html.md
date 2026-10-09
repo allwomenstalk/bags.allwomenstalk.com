@@ -79,16 +79,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/26341494)
 
 ## Related Posts
 
-- [chic shoulder bags](https://bags.allwomenstalk.com/chic-colored-shoulder-bags/)
-- [simple homemade clutch](https://lifestyle.allwomenstalk.com/pretty-clutch-bags-to-make/)
 - [should i buy chanel bag](https://fashion.allwomenstalk.com/good-reasons-to-buy-a-chanel-2-55-flap-bag/)
-- [net a porter mulberry](https://bags.allwomenstalk.com/designer-bags-to-obsess-over-this-summer/)
 - [thomas wylde bag](https://lifestyle.allwomenstalk.com/amazing-u-handbag-tutorials/)
+- [net a porter mulberry](https://bags.allwomenstalk.com/designer-bags-to-obsess-over-this-summer/)
+- [chic shoulder bags](https://bags.allwomenstalk.com/chic-colored-shoulder-bags/)
 - [designer bags at nordstrom](https://fashion.allwomenstalk.com/fabulous-designer-bags-under-300/)
 - [colorful crossbody purse](https://bags.allwomenstalk.com/colorful-crossbody-bags/)
 - [raffia purses](https://bags.allwomenstalk.com/stylish-and-summery-raffia-bags/)
-- [coach c pattern layouts](https://bags.allwomenstalk.com/ways-to-tell-a-fake-coach-purse/)
 - [collectorsweekly](https://allwomenstalk.com/designer-heaven-collectorsweekly-wrangles-hot-vintage-handbags/)
+- [coach c pattern layouts](https://bags.allwomenstalk.com/ways-to-tell-a-fake-coach-purse/)
+- [simple homemade clutch](https://lifestyle.allwomenstalk.com/pretty-clutch-bags-to-make/)
 - [9 Cute Clutch Bags ...](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 - [9 Designer Clutch Bags to Fall in Love with ...](https://bags.allwomenstalk.com/designer-clutch-bags-to-fall-in-love-with/)
 
