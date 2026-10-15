@@ -78,15 +78,15 @@ I've never actually taken a clutch bag anywhere, I always just carry my bottomle
 ## Related Posts
 
 - [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
-- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
-- [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
-- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
-- [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
-- [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
+- [tod's g bag](https://bags.allwomenstalk.com/7-chic-bags-by-tods/)
+- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
+- [8 Adorable Weekend Bags ...](https://bags.allwomenstalk.com/adorable-weekend-bags/)
+- [bright pink purses](https://bags.allwomenstalk.com/8-hot-pink-purses-i-wish-i-owned/)
 - [what is pocketbook bingo](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
 - [hello kitty tennis bag](https://bags.allwomenstalk.com/7-adorable-hello-kitty-handbags/)
-- [embellished handbag](https://bags.allwomenstalk.com/embellished-bags/)
+- [modcloth handbags](https://bags.allwomenstalk.com/7-beautiful-kiss-lock-bags-and-wallets/)
+- [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 - [7 Pretty Clutches ...](https://bags.allwomenstalk.com/7-pretty-clutches/)
 - [8 Cute Crossbody Bags ...](https://bags.allwomenstalk.com/8-cute-crossbody-bags/)
 

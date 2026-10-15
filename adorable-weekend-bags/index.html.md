@@ -72,16 +72,16 @@ Top image source: [images.asos.com](http://images.asos.com/inv/media/5/0/8/3/163
 
 ## Related Posts
 
-- [budget backpacks](https://bags.allwomenstalk.com/8-fashionable-and-affordable-backpacks/)
-- [8 Gorgeous Brown Bags ...](https://bags.allwomenstalk.com/8-gorgeous-brown-bags/)
-- [little black bags](https://bags.allwomenstalk.com/lovely-little-bags-for-your-lbd/)
-- [coach ladies purses](https://bags.allwomenstalk.com/8-classic-coach-bags-i-love/)
-- [shopruche](https://bags.allwomenstalk.com/beautiful-bags-from-shop-ruche/)
-- [oversized clutches](https://bags.allwomenstalk.com/gorgeous-oversized-clutches/)
-- [10 Fabulous Travel Bags ...](https://bags.allwomenstalk.com/fabulous-travel-bags/)
 - [dakota purse](https://bags.allwomenstalk.com/pretty-purses-by-melie-bianco/)
+- [budget backpacks](https://bags.allwomenstalk.com/8-fashionable-and-affordable-backpacks/)
+- [shopruche](https://bags.allwomenstalk.com/beautiful-bags-from-shop-ruche/)
+- [8 Gorgeous Brown Bags ...](https://bags.allwomenstalk.com/8-gorgeous-brown-bags/)
+- [coach ladies purses](https://bags.allwomenstalk.com/8-classic-coach-bags-i-love/)
+- [little black bags](https://bags.allwomenstalk.com/lovely-little-bags-for-your-lbd/)
 - [7 Trendy Laptop Bags ...](https://bags.allwomenstalk.com/7-trendy-laptop-bags/)
+- [oversized clutches](https://bags.allwomenstalk.com/gorgeous-oversized-clutches/)
 - [7 Smashing Satchels ...](https://bags.allwomenstalk.com/7-smashing-satchels/)
+- [10 Fabulous Travel Bags ...](https://bags.allwomenstalk.com/fabulous-travel-bags/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
 - [8 Cute Crossbody Bags ...](https://bags.allwomenstalk.com/8-cute-crossbody-bags/)
 

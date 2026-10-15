@@ -73,15 +73,15 @@ No matter what your budget, there’s a statement-making evening bag for you. Fr
 
 ## Related Posts
 
-- [7 Colour Block Bags ...](https://bags.allwomenstalk.com/colour-block-bags/)
 - [cutest purses](https://bags.allwomenstalk.com/cute-purses-with-an-edge/)
+- [tiny purses](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
 - [leopard print purse](https://bags.allwomenstalk.com/leopard-print-bags/)
 - [yl brand bags](https://bags.allwomenstalk.com/fabulously-chic-top-designer-bags-a-fashionista-should-have/)
-- [7 Funky Fringed Bags ...](https://bags.allwomenstalk.com/7-funky-fringed-bags/)
-- [tiny purses](https://bags.allwomenstalk.com/7-tiny-purses-with-big-style/)
 - [never is enough](https://bags.allwomenstalk.com/7-reasons-why-a-girl-can-never-have-enough-bags/)
 - [vera bradley eloise](https://bags.allwomenstalk.com/8-colorful-vera-bradley-bags-for-spring-break/)
+- [7 Funky Fringed Bags ...](https://bags.allwomenstalk.com/7-funky-fringed-bags/)
 - [leather bag charms](https://bags.allwomenstalk.com/8-brilliant-bag-charms/)
+- [7 Colour Block Bags ...](https://bags.allwomenstalk.com/colour-block-bags/)
 - [9 Large Bags You'll Love to Take Anywhere with You...](https://bags.allwomenstalk.com/large-bags-youll-love-to-take-anywhere-with-you/)
 - [9 Cute Clutch Bags ...](https://bags.allwomenstalk.com/9-cute-clutch-bags/)
 - [8 Most Covetable Bags ...](https://bags.allwomenstalk.com/8-most-covetable-bags/)
