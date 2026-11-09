@@ -1,9 +1,9 @@
 ---
 title: "When RIMOWA Meets Sydney's Shores..."
-description: "Early-Morning Beach Vibes; Art Deco Delights; Native Flora and Fauna; Ocean Pools and Horizons; Embracing the Coastal Lifestyle; More ..."
+description: "Early-Morning Beach Vibes; Art Deco Delights; Native Flora and Fauna; Ocean Pools and Horizons; Embracing the Coastal Lifestyle"
 url: "https://bags.allwomenstalk.com/rimowa-captures-the-spirit-of-sydney-in-new-horizons-series/"
 category: "bags"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # When RIMOWA Meets Sydney's Shores...
